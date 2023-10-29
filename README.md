@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Everything**
 
-- 📫 How to reach me **cyanroger22@outlook.com**
+- 📫 How to reach me **thabang@quixendynamics.com**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
